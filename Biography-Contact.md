@@ -3,4 +3,3 @@ Chelsea Orange is a motivated go getter who enjoys learning and challenges. Chel
 
 Please contact me at chelsea.rae.o@gmail.com
 
-[Resume](https://docs.google.com/document/d/18Pr_lnHQR03FTcjsLP_dSxq6hbvsgyAMOIjKBIY2DE4/edit?usp=sharing)
